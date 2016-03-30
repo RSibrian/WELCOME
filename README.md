@@ -1,5 +1,5 @@
 # WELCOME
 bienvenido al mundo de Blanky
 
-mi Renesitho precioso
+mi Rene precioso
 I LOVE YOU
